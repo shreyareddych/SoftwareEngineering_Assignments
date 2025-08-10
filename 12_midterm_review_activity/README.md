@@ -1,1 +1,0 @@
-# 12_midterm_review_activity
